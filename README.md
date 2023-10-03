@@ -2,7 +2,7 @@
 
 ![image](https://github.com/thaizacapelao/my-Portifolio-Thaiza/assets/104083691/8f68e662-c979-46d0-b8bd-e06dc85a5512)
 ![image](https://github.com/thaizacapelao/my-Portifolio-Thaiza/assets/104083691/56bd8982-2619-4bd7-877a-3a7de816ccd4)
-![image](https://github.com/thaizacapelao/my-Portifolio-Thaiza/assets/104083691/dbf09d57-1e8c-43a7-92d5-ade3ab0d973c)
+![image](https://github.com/thaizacapelao/my-Portifolio-Thaiza/assets/104083691/f2ca9b77-613a-4782-b38c-372b48243154)
 ![image](https://github.com/thaizacapelao/my-Portifolio-Thaiza/assets/104083691/399900aa-e9cd-41bb-be74-0a06938bba31)
 ![image](https://github.com/thaizacapelao/my-Portifolio-Thaiza/assets/104083691/66aeafd3-e344-481e-84b5-95db2882b25d)
 
